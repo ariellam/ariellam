@@ -1,5 +1,6 @@
-### Hi there 👋
+### ༓ hey there! i'm ariel ༓
 
+not much is here as i'm transitioning to my full time job! will update soon :-)
 <!--
 **ariellam/ariellam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
